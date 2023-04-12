@@ -1,1 +1,1 @@
-Learning is fun
+Give it everything you've got.
